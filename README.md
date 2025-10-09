@@ -90,4 +90,3 @@ Sidjabat, S. (2015). Revitalisasi Angkutan Umum untuk Mengurangi Kemacetan Jakar
 Jurnal Manajemen Bisnis Transportasi dan Logistik, 1(2), 309–330.
 Jakarta: STMT Trisakti.
 
----
